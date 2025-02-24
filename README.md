@@ -3,4 +3,11 @@
 'the effect whereby the position or direction of an object appears to differ when viewed from different positions, e.g. through the viewfinder and the lens of a camera.'*
 
 ## Who are we?
-**Parallax Interactive** is an ongoing group of talented individuals of various ages worldwide working on a new story-based horror trilogy. Planned to be released on all platforms besides mobile, the trilogy will go with a beginning-sequel-prequel format. Starting with Subject 9, a 16-hour multi-end survival-adventure-horror game, climaxed with Subject 10, an open-world game of the same genre, ending with Subject 8, a 6-hour horror game built to add the closure all stories need. With a building working team with more than 20 developers, we plan to start releasing in 2026. Before then, we plan to start a publishing service, with the ambition to publish twelve games developed by partnered studios before our first real release
+**Parallax Interactive** is a growing group of talented developers creating quality productions in a hobbyist environment. We are a community-driven group, with applications open to anyone. Activity and community engagement are a huge priority, so our journey is to share. Our team primarily works around the 6-month development phases, publishing story-rich games in different categories. We normally operate in hyper-realistic games targeted towards PC and Next-Generation consoles such as Xbox Series X and PlayStation 5.
+
+Occasionally, smaller productions are moved out of the way for much larger video games. The SUBJECT series is our next big production, which we will start once we have sufficient funding, team members, and community engagement. 
+
+## What can I do here? #
+This is the most asked question we get. There is so much an individual can do. You could always become a paid member, which gives you many premium perks. Instead, simply being a part of our community on our Instagram or Discord is plenty! Participating in live events, giving feedback, making friends and any community action help us a ton. Of course, buying the games we make or publish helps us the most.
+
+Additionally, you can join our team directly. More information and the interest form can be found on the Join Us page on our website (https://www.parallaxinteractive.info). Our application is very rigorous, but once you are in, the work and environment feel like a friend group, creating games as a combined hobby. 
